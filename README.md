@@ -1,1 +1,13 @@
 # Seises de bomba
+
+.ve-media wc:PierreGassendi.jpg right caption="Pierre Gassendi"
+
+En el año 1797 el científico francés Pierre Gassendi hizo una visita oficial a Puerto Rico para documentar la fauna y la geografía de la isla además de las costumbres y la cultura de los habitantes. En una visita al pueblo de Loíza, Gassendi asistió a un baile de tambor de los negros. En esta fiesta los negros tocaban un tambor llamado por ellos bamboula. En sus propias palabras, dijo Gassendi nommé vulgairement bamboula. En la posterior traducción al español, sesenta y seis años después, el escritor puertorriqueño Julio Vizcarrondo sustituyó la palabra original bamboula por la palabra española bomba, una palabra también usado comúnmente en Puerto Rico para describir el mismo tambor. Desde entonces, todos los que han escrito sobre el uso de la palabra bomba han hecho el error de citar a la traducción de Vizcarrondo pensando que fue la misma palabra usada por Gassendi y los loizeños en esta ocasión. Cierto es que los ritmos y los bailes de bomba son anteriores a esta fecha y el uso de la palabra bomba en Puerto Rico es muy antiguo pero no podemos citar a la obra de Gassendi para tal documentación. Sin embargo, la obra original de Gassendi que documenta el uso de la palabra bamboula por los loiceños es muy significativa.
+
+.ve-media default:https%3A//images.squarespace-cdn.com/content/v1/57098faa044262b3b1549587/1593112104820-Q9W9ZA9QLYNGNLGO0WAY/los-ayala-samuel-lind.jpg%3Fformat%3D1000w left caption="Early Bomba"
+
+Hoy día se conoce al baile de tambor en Puerto Rico como baile de bomba y como bombazo. El bambula o bambulaé es ahora uno de los estilos musicales del género de la bomba. Sin embargo, para la fecha del 1797 y antes, se puede decir que además de bomba, el tambor puertorriqueño de barril se llamaba también bamboula o, en su forma diminutiva, boula. Ahora, en el español puertorriqueño, se dice buleador. Generalmente hablando sabemos que los tambores conocidos por el nombre bamboula (bambula) o boula (bula) en otras partes del Caribe como en Haití, Guadalupe, Carriacou, Martinica, St. Lucia, Dominica, Trinidad, Jamaica, entre otras, son tambores pequeños y medianos hechos de barriles y que miden aproximadamente de 19 a 23 pulgadas de alto y de 11 a 14 pulgadas de diámetro en ambas aberturas. En algunos casos son muchos más grandes, pero todos son originalmente tamaños industriales comunes según la fabricación del barril en cuestión. La palabra bula es el nombre universal para el tambor de barril. En ingles se usa también la palabra "drum" para identificar a un barril común y corriente.
+
+
+
+
